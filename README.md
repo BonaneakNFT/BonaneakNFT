@@ -4,8 +4,9 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://twitter.com/Bonaneak2 
 - My NFT collections on OpenSea 
-
+- https://opensea.io/collection/head-crypto-monkey
 - My NFT collections on Rarible
+- https://headmonkeypoly.wlbl.xyz/
 
 
 <!---
